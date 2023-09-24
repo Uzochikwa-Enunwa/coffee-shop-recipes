@@ -4,7 +4,7 @@
 
 ## Ingredients
 
-- 8 oz Breakfast blend
+- 8 oz breakfast blend
 - 1/4 cup of 2% milk
 - 1 Tbsp powdered sugar
 - 1/4 tsp vanilla extract
